@@ -1,2 +1,0 @@
-# FerdyAnwar12
-tugas
